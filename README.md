@@ -1,4 +1,4 @@
-<img src="https://i.pinimg.com/1200x/41/c5/8f/41c58f0969d992ebaac80d99dc75bcb6.jpg" width="450" height="1500" />
+<img src="https://i.pinimg.com/1200x/41/c5/8f/41c58f0969d992ebaac80d99dc75bcb6.jpg" width="500" height="15400" />
 
 # Hiyyyaaaa!!!! ✨
 
