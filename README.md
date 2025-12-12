@@ -1,11 +1,10 @@
-# Hiya👋!
+![black discord banner (evangelion)](https://github.com/user-attachments/assets/a0fac11b-c885-435c-bfaf-ddaef8796553)
 
-My name is Ayaan Umair, and I'm a student at the University of Texas at Dallas! I'm studying Neuroscience & Psychology (Major/Minor), but I do a lot! From powerlifting, philosophy, programming, reading, cars, photography, and research! I'll post anything here to keep everything in one place. I have a lot of social media accounts, so you should be able to find me on anything! I linked my LinkedIn if you wanna look at it! 
+# Hiyyyaaaa!!!! ✨
 
-![e18518c6d24257c6fb02e3c95a862d85](https://github.com/user-attachments/assets/e27587c5-5a56-4f6f-958a-cbd44576aff5)
+I'm **Thobes!** I use my online name pretty much everywhere — it means a lot to me & honestly, just feels right. ** I’m trying to be a bit more alive on GitHub lately, especially for projects I actually care about or want to support.
 
+I’m a **pre‑med student** with a soft spot for **psychology, counseling, and all things brain‑vibes**, but STEM has always had me in a chokehold too. So, this space is kinda my playground — lighthearted, a little nerdy, and sprinkled with the same vibes as my Rei icon.
 
-Have a lovely day,
-\
-Ayaan U
+Feel free to poke around my work! I’m building things slowly but surely. :3
 
