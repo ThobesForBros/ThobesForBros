@@ -8,5 +8,5 @@ I’m a **pre‑med student** with a soft spot for **psychology, counseling, and
 Feel free to poke around my work! I’m building things slowly but surely. :3
 
 <p align = "center">
-  <img src="https://i.pinimg.com/1200x/41/c5/8f/41c58f0969d992ebaac80d99dc75bcb6.jpg" width="500" height="15400" />
+  <img src="https://i.pinimg.com/1200x/41/c5/8f/41c58f0969d992ebaac80d99dc75bcb6.jpg" width="300" height="800" />
 </p>
