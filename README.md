@@ -6,8 +6,18 @@ I'm **Thobes!** I use my online name pretty much everywhere — it means a lot t
 I’m a **pre‑med student** with a soft spot for **psychology, counseling, and all things brain‑vibes**, but STEM has always had me in a chokehold too. So, this space is kinda my playground — lighthearted, a little nerdy, and sprinkled with the same vibes as my Rei icon.
 
 Feel free to poke around my work! I’m building things slowly but surely. :3
-
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
 <div align = "center">
+
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⡼⢀⠀⠀⠘
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣾⣷⡿⠀⣀⣼
