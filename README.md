@@ -1,4 +1,4 @@
-![black discord banner (evangelion)](https://github.com/user-attachments/assets/a0fac11b-c885-435c-bfaf-ddaef8796553)
+![black discord banner (evangelion)](https://github.com/user-attachments/assets/a0fac11b-c885-435c-bfaf-ddaef8796553.ico)
 
 # Hiyyyaaaa!!!! ✨
 
